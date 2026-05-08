@@ -1,4 +1,4 @@
-
+Fantastical for macOS ultimate Integration: dark mode & OCR scanning is the best Fantastical for macOS integration, featuring dark mode and OCR scanning. Safe, efficient, and
 
 
 
